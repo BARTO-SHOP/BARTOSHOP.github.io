@@ -1,0 +1,1 @@
+# BARTOSHOP.github.io
